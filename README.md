@@ -1,0 +1,2 @@
+# mynameislam
+For Allah
