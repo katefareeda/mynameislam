@@ -1,2 +1,2 @@
 # mynameislam
-For Allah
+Islam for Allah 
